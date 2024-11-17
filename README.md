@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Isleene
+- 👋 Hi, I’m @Isleene🥰
 - 👀 I’m interested in everything that sound good
 - 🌱 I’m currently learning software engeneering
 - 💞️ I’m looking to collaborate on data and IA stuffs
